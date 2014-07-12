@@ -6,7 +6,7 @@
 *سنن الرسول الكريم صل الله عليه وسلم في رمضان. 
 * أدعية الإفطار و أدعية يومية.
 * الإستماع إلى القرأن الكريم مع  مجموعة كبيرة من القراء دون تحميل.
-* معلومات عول عيد الاضحى  عيد الاضحى 
+* .معلومات حول عيد الفطر 
 
 Ramadan, est une application de la religieuse islamique sur le mois sacré du Ramadan  caractérisé par de nombreuses fonctionalités:
 * Définition du mois sacré du Ramadan.
